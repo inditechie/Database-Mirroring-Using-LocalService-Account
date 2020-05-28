@@ -5,7 +5,7 @@ Note:
 By:
 	Ghufran Khan
 	FB: https://www.facebook.com/GhufranKhan89
-	Youtube: https://youtu.be/O2RaZpSRC2U
+	Youtube: https://bit.ly/36DQ87d
 	GitHub: https://github.com/inditechie?tab=repositories
 */
  
